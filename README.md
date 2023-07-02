@@ -179,3 +179,4 @@ Feel free to add your favorite animes too xD
     • Grave of fireflies
     • Wolf children
     • Flavours of youth
+    • Paprika
